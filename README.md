@@ -1,4 +1,4 @@
-Mphil Physics, University of East Anglia, 2021-25 (thesis submitted October 2025).
+MPhil Physics, University of East Anglia, 2021-25 (thesis submitted October 2025).
 
 MSc Astrophysics, Liverpool John Moores University, 2019-21.
 
